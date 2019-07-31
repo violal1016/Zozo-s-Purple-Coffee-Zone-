@@ -1,2 +1,2 @@
 # Zozo-s-Purple-Coffee-Zone-
-Zozo's Diary
+Zozo's Mathematics Studying Diary
